@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ratcatcher7
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning hoe things work
+- 🌱 I’m currently learning how things work
 - 💞️ I’m looking to collaborate on evrything
 - 📫 How to reach me ...
 
